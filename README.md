@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Barbosa
+- 👀 I’m interested in food, music and technology 
+- 🌱 I’m currently learning about curiosities, history, math and technologies
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me: my e-mail is fehstudo18@gmail.com
